@@ -1,4 +1,4 @@
-# PWC Power BI Virtual work experience - Diversity and Inclusion-
+# PWC Power BI Virtual work experience - Diversity and Inclusion
 
 ![image](https://github.com/MrutyunjayShukla/PWC-Power-BI-Virtual-work-experience-Users-Churn-Retention/assets/89764972/4946ec58-2462-4d15-9b86-4b91459ff7d6)
 
